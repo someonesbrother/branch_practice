@@ -7,6 +7,7 @@ These are a few of my favorite things:
 - King Kong
 - Raindrops on roses
 - Whiskers on FFFFFFFFFFMM
+- Whiskers on FFFFFFFFFFqq
 - Bright copper kettles
 - Warm woolen mittens
 - Not editing directly on GitHub
